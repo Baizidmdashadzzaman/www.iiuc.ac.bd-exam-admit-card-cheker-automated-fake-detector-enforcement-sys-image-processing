@@ -4,7 +4,7 @@
 
 ![Image](2.png?raw=true "Image")
 
-![Image](3.png?raw=true "Image")
+![Image](3.jpg?raw=true "Image")
 
 ![Image](4.png?raw=true "Image")
 
